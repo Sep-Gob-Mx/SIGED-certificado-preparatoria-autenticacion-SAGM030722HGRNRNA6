@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAGM030722HGRNRNA6
+SAGM030722HGRNRNA6
